@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🌱 I am a student who will graduate in 2026
+- 🌱 I'm a student who will graduate in 2026
 - 🔭 I'm looking for an internship
 
 
